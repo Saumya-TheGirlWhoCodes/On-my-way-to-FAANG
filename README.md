@@ -1,4 +1,4 @@
-# On-my-way-to-FAANG
+# On-my-way-to-FAANG :)
 Here, I am going to practice daily in order to improve my skills.
 
 
